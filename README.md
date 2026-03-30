@@ -33,3 +33,8 @@ Please Note -
 This sample is for demonstration purposes only and does not constitute legal advice.
  legal-writing-samples
 Legal writing samples including memoranda and case analysis demonstrating research and structured legal reasoning.
+
+Download the legal memorandum.pdf file to view: 
+https://drive.google.com/file/d/1mHaoYDxltGjPVF9ZBd0Or2lBe6Pu54Sw/view?usp=drive_link
+
+
